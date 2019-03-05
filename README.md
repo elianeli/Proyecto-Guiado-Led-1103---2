@@ -1,4 +1,4 @@
-# Proyecto-Guiado-Led-1103---2
+# Proyecto-Guiado-Led-1103-2
 **INTEGRANTES**
 
 **Diana Puerto** - Lider 
